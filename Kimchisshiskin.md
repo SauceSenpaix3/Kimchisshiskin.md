@@ -18,4 +18,5 @@
 
 ## [Zylice Skin Mix(2022 Compatibility Ver.)](https://drive.google.com/file/d/1QRsELktLnH--R5zOwpXYjSnreT6Q3_jM/view)
 ### Zylice Skin Mix 2022 Version
+![alt text](https://im4.ezgif.com/tmp/ezgif-4-c39c2cb854.gif)
 
