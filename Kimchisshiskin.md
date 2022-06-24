@@ -15,3 +15,7 @@
 ## [-_Kimchi B](https://drive.google.com/drive/folders/1oTkmIQ-U7vdqm8kF41FEPtT2Qz5AC2AO?usp=sharing)
 ### Edit of a Bubbleman skin by Kimchisshi
 ![alt text](https://media.giphy.com/media/cEILDDajoebmMMPrBw/giphy.gif)
+
+## [Zylice Skin Mix(2022 Compatibility Ver.)](https://drive.google.com/file/d/1QRsELktLnH--R5zOwpXYjSnreT6Q3_jM/view)
+### Zylice Skin Mix 2022 Version
+![alt text](https://imgur.com/a/gbA2UAT)
